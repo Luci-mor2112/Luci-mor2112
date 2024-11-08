@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Luci-mor2112
 - 👀 I’m interested in historys 
 - 🌱 I’m currently learning many things
-- 💞️ I’m looking to collaborate on nobady
+- 💞️ I’m looking to collaborate on nobody
 - 📫 How to reach me my instragam is @Luci._.mor
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: iam strange:>
